@@ -8,4 +8,3 @@ Buon lavoro, a giovedì!
 
 
 
-non funzionante
